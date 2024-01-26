@@ -1,1 +1,1 @@
-# CPE313
+# Hi, I am Kryslyhr L. Navida a 3rd Year Computer Engineering from Technological Institute of the Philippines. I created this account for me to learn more about programming and to share my opinions and knowledge with everyone. For everyone who will read this,I hope we can help each othe
